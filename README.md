@@ -7,7 +7,7 @@
 Join our Telegram group to stay updated and get instructions on how to use this tool:
 
 -
-- [Smart Airdrop - Channel](https://t.me/airdropdigitalcuan)
+- [Airdrop Digital - Channel](https://t.me/airdropdigitalcuan)
 
 ## 🌟 Features
 
